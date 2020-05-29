@@ -1,2 +1,2 @@
 # PAJ
-I AM A SERIOUS AND ENERGY PERSON
+I'm a serious person
